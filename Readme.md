@@ -4,4 +4,4 @@ Cada compañero se encargara de una tarea asignada por mi, VictorGB, y que tendr
 
 Esto servira como un pequeño repaso para lo que les espera. 😁
 
-sorry 
+sorry , no tengo tiempo para explicar más, pero espero que esto te ayude a entender mejor
